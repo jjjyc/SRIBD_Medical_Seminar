@@ -4,7 +4,7 @@
 PDF +　seminar record videos 
 
 Videos download links: 
-链接:https://pan.baidu.com/s/1q_4w7UEp_AiN0rYIivPXyg  密码:uc39
+链接:https://pan.baidu.com/s/1NtDJOkfCeFHAAvBZIfsFvQ  密码:4jcf
 
 备用
 链接:https://pan.baidu.com/s/1D3Bq-AutAAhFwlZuAtMRrA  密码:15jb
